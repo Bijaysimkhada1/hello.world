@@ -1,3 +1,3 @@
 # hello.world
 bijay github
-Hi, myself bijay simkhada. All 
+We are all the way from lockdown. andd i am loving it.Hi, myself bijay simkhada. All
